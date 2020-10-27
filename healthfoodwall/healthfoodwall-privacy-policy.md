@@ -1,6 +1,6 @@
 #### Updated: 31-01-2020
 
-Health Food Wall B.V. ("We" or "Health Food Wall") is committed to protecting and respecting your privacy. This privacy policy sets out the basis on which we process any personal data we collect from you or that you provide to us. Please read this privacy policy carefully to understand our views and practices regarding your personal data and how we will treat it.
+Health Food Wall B.V. ("We" or "The Treat") is committed to protecting and respecting your privacy. This privacy policy sets out the basis on which we process any personal data we collect from you or that you provide to us. Please read this privacy policy carefully to understand our views and practices regarding your personal data and how we will treat it.
 
 ## Who are we?
 
